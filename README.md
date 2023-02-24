@@ -1,1 +1,1 @@
-# LazyLive
+# LazyLife
